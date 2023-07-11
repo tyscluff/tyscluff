@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @tyscluff
-
-
+- I'm an entreprenuerial engineer with a passion for early stage startups.
+- I love making awesome user experiences, and working with the entire tech stack.
